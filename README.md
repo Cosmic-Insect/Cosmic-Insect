@@ -1,16 +1,17 @@
-## Hi there 👋
+![tumblr_c71a9132771233e74343e87d2865ffa1_e89ab559_540](https://github.com/user-attachments/assets/b219c068-466c-4fad-8521-b0719c59b6a0)  
 
-<!--
-**Cosmic-Insect/Cosmic-Insect** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  
+︵‿₊ ❀ : **Doom or refer to by current skin • Any pronouns • Adult**  
 
-Here are some ideas to get you started:
+  
+︵‿₊ : Quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+    
+︵‿₊ ❀ **Status Directory**  
+
+• Green / Online = I'm active  
+
+• Yellow / Away = AFK, whisper to interact  
+
+• Red / Busy = Not in the best mood, interactions will be slower  
