@@ -15,3 +15,6 @@
 • Yellow / Away = Offtab usually, whisper to interact  
 
 • Red / Busy = Not in the best mood, interactions will be slower  
+
+
+![tumblr_0ce6c63bf45f07c5e93dfd7ad461ef9b_b500fc01_640](https://github.com/user-attachments/assets/922c992e-7ecf-4032-9880-9694893d23aa)
