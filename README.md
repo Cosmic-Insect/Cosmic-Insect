@@ -12,6 +12,6 @@
 
 • Green / Online = I'm active  
 
-• Yellow / Away = AFK, whisper to interact  
+• Yellow / Away = Offtab usually, whisper to interact  
 
 • Red / Busy = Not in the best mood, interactions will be slower  
