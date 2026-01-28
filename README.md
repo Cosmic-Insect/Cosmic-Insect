@@ -1,4 +1,4 @@
-![tumblr_c71a9132771233e74343e87d2865ffa1_e89ab559_540](https://github.com/user-attachments/assets/b219c068-466c-4fad-8521-b0719c59b6a0)  
+![tumblr_c71a9132771233e74343e87d2865ffa1_e89ab559_540](https://github.com/user-attachments/assets/a21f82e4-c74f-4e49-8dfd-439269694567)
 
   
 ︵‿₊ ❀ : **Doom or refer to by current skin • Any pronouns • Adult**  
@@ -17,4 +17,4 @@
 • Red / Busy = Not in the best mood, interactions will be slower  
 
 
-![tumblr_0ce6c63bf45f07c5e93dfd7ad461ef9b_b500fc01_640](https://github.com/user-attachments/assets/922c992e-7ecf-4032-9880-9694893d23aa)
+![541461682-922c992e-7ecf-4032-9880-9694893d23aa](https://github.com/user-attachments/assets/a52ecfb9-96a3-4164-b0fb-b3a9c4a3b2c9)
