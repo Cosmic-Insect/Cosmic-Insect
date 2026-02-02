@@ -1,20 +1,25 @@
-![tumblr_c71a9132771233e74343e87d2865ffa1_e89ab559_540](https://github.com/user-attachments/assets/a21f82e4-c74f-4e49-8dfd-439269694567)
-
+<div align="center">
   
-︵‿₊ ❀ : **Doom or refer to by current skin • Any pronouns • Adult**  
+|![tumblr_c71a9132771233e74343e87d2865ffa1_e89ab559_540](https://github.com/user-attachments/assets/a21f82e4-c74f-4e49-8dfd-439269694567)| <sup>︵‿₊ ❀ : ***Doom or refer to by current skin • Any pronouns • Adult • [<3](https://www.patreon.com/u57444819)</sup>*** |
+| ------------- | ------------- |
+|![tumblr_c71a9132771233e74343e87d2865ffa1_e89ab559_540 (1)](https://github.com/user-attachments/assets/11bffa10-8c30-45e6-bbe7-c295fe90874a)| <sup>︵‿₊ : I'm usually quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.</sup>  |
 
+</div>
+
+<br />
+
+<br />
+<br />
+<div align="center">
   
-︵‿₊ : Quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.  
+|<sup>︵‿₊ ❀</sup>  | <sup>Status Directory</sup>| 
+| ------------- | ------------- |
+| ***<sup>Green / Online</sup>***  | **<sup>I'm active</sup>**  |
+| ***<sup>Yellow / Away</sup>***  | **<sup>Offtab, whisper to interact</sup>**  |
+| ***<sup>Red / Busy</sup>***  | **<sup>Not in the best mood, interactions will be slower</sup>**  |
 
+</div>
 
-    
-︵‿₊ ❀ **Status Directory**  
-
-• Green / Online = I'm active  
-
-• Yellow / Away = Offtab usually, whisper to interact  
-
-• Red / Busy = Not in the best mood, interactions will be slower  
-
-
-![541461682-922c992e-7ecf-4032-9880-9694893d23aa](https://github.com/user-attachments/assets/a52ecfb9-96a3-4164-b0fb-b3a9c4a3b2c9)
+<br />
+<br />
+<br />
