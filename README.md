@@ -1,8 +1,7 @@
 |<img src="![73208](https://github.com/user-attachments/assets/c73313af-3fd9-4fa0-9685-296e069539bc)
 " width="200" alt="Resized Image">| <sup>︵‿₊ ❀ : ***Doom or refer to by current skin • Any pronouns • Adult • [<3](https://www.patreon.com/u57444819)</sup>*** |
 | ------------- | ------------- |
-|<img src="![tumblr_nfsshgtdsH1qi9frfo1_500](https://github.com/user-attachments/assets/c4c802e7-994a-42b1-b140-017a4482330e)
-" width="200" alt="Resized Image">| <sup>︵‿₊ : **I'm usually quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.**</sup>  |
+|<img src="![tumblr_nfsshgtdsH1qi9frfo1_500](https://github.com/user-attachments/assets/c4c802e7-994a-42b1-b140-017a4482330e)" width="200" alt="Resized Image">| <sup>︵‿₊ : **I'm usually quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.**</sup>  |
 
 
 <br />
