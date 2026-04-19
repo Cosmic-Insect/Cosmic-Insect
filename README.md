@@ -1,6 +1,6 @@
-|<img src="https://64.media.tumblr.com/38c2c53d8b5a1e0b24f19f91af79d3af/tumblr_nc0p61gorI1r41iwho3_250.gifv" width="200" alt="Resized Image">| <sup>︵‿₊ ❀ : ***Doom or refer to by current skin • Any pronouns • Adult • [<3](https://www.patreon.com/u57444819)</sup>*** |
+|<img src="https://64.media.tumblr.com/38c2c53d8b5a1e0b24f19f91af79d3af/tumblr_nc0p61gorI1r41iwho3_250.gifv" width="200" alt="Resized Image">| <sup>︵‿₊ ❀ : ***Doom or refer to by current skin • Any pronouns • Adult • [This guy stinks/j](https://www.patreon.com/u57444819)</sup>*** 
+I'm usually quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.|
 | ------------- | ------------- |
-|<img src="https://64.media.tumblr.com/3b08832b47d24f8e596a9294c14d8e5f/tumblr_nc0p61gorI1r41iwho1_250.gifv" width="200" alt="Resized Image">| <sup>︵‿₊ : **I'm usually quiet, but feel free to whisper or approach if you want to chat. I enjoy meeting others with the same interests.**</sup>  |
 
 
 <br />
@@ -22,9 +22,7 @@
 <br />
 
 <div align="center">
-  
-<img src="https://github.com/user-attachments/assets/eaadcb85-4e50-4754-ba8c-b149c6ffbcd6" width="99" alt="Resized Image">
 
-
+<img width="99" height="57" alt="151451-15145616" src="https://github.com/user-attachments/assets/4568772e-49e0-45d1-9f08-2d1ae17d7ccf" />
 
 </div>
