@@ -28,8 +28,7 @@
 
 <div align="center">
 
-|<sup>︵‿₊ ❀ STAMP COLLECTION</sup>  | <p float="center"> <img src="https://github.com/user-attachments/assets/931ae45f-c607-4134-add6-4578dadaf7b4" width="80" /> <img src="https://github.com/user-attachments/assets/1c208fb4-2e9a-40d9-b539-f342cd3967f2" width="80" /> <img src="https://github.com/user-attachments/assets/a9f2e4a9-26db-4364-aec6-fbcc361c544e" width="80" /> <img src="https://github.com/user-attachments/assets/6f2e1dc8-3173-4b7e-9d2e-608198f367dd" width="80" /> <img src="https://github.com/user-attachments/assets/2738e370-ed19-4628-ba07-6e3d9658c911" width="80" /> <br /> <img src="https://github.com/user-attachments/assets/093c9600-3ff3-402f-aac4-4cb9008bea21" width="150" />  </p> | 
+|<sup>︵‿₊ ❀ STAMP COLLECTION</sup>  | <p float="center"> <img src="https://github.com/user-attachments/assets/931ae45f-c607-4134-add6-4578dadaf7b4" width="80" /> <img src="https://github.com/user-attachments/assets/1c208fb4-2e9a-40d9-b539-f342cd3967f2" width="80" /> <img src="https://github.com/user-attachments/assets/a9f2e4a9-26db-4364-aec6-fbcc361c544e" width="80" /> <img src="https://github.com/user-attachments/assets/2738e370-ed19-4628-ba07-6e3d9658c911" width="80" /> <br /> <img src="https://github.com/user-attachments/assets/093c9600-3ff3-402f-aac4-4cb9008bea21" width="130" /> <img src="https://github.com/user-attachments/assets/c67c6876-f831-4af6-9d85-cc7e6fb20deb" width="130" /> <img src="https://github.com/user-attachments/assets/7e7adfa8-29b7-4a52-b8fa-43aadf136e39" width="130" /> <br /> <img src="https://github.com/user-attachments/assets/069b8e21-6571-4c17-b908-f0cb9ea0282f" width="130" /> <img src="https://github.com/user-attachments/assets/a3dd76b7-42b5-4ef8-b44d-0391d49fd510" width="80" />  </p> | 
 | ------------- | ------------- |
 
 </div>
-
