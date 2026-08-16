@@ -5,7 +5,12 @@
 
 <div align="center">
 
+<div style="background-color: #ffffff;"><img src="https://github.com/user-attachments/assets/7d56520e-f45f-4ed2-acdb-3991bc83eda8" /></div>
+
+<br />
+
 $${\color{#57754F}Midnight \space  \space \color{#7C8577}with   \space \color{#57754F}  \space \space the  \space \space \color{#5D7056}stars   \space \space and   \space \space you   \space \space ...  \space }$$
+
 
 <br />
 
