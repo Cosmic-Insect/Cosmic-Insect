@@ -5,11 +5,11 @@
 
 <div align="center">
 
-<div style="background-color: #ffffff;"><img src="https://github.com/user-attachments/assets/7d56520e-f45f-4ed2-acdb-3991bc83eda8" /></div>
+<div style="background-color: #ffffff;"><img src="https://64.media.tumblr.com/e3d9be80ada7ce1e7191c640ab13c778/tumblr_nrca3qNlUW1qjztgpo1_400.gif" /></div>
 
 <br />
 
-$${\color{#57754F}Midnight \space  \space \color{#7C8577}with   \space \color{#57754F}  \space \space the  \space \space \color{#5D7056}stars   \space \space and   \space \space you   \space \space ...  \space }$$
+$${\color{#3b6b9c}You \space  \space \color{#2f5b87}got   \space \color{#1b446e}  \space \space the  \space \space \color{#10375e}power   \space \space ...  \space }$$
 
 
 <br />
