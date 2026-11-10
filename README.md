@@ -6,15 +6,9 @@
 <div align="center">
 
 
-
 <div style="background-color: #ffffff;">
-  <img src="https://github.com/user-attachments/assets/71f131b4-b259-4566-88c3-186bb151493b" style="width: 205px; height: 150px;" />
+  <img src="https://github.com/user-attachments/assets/382415ba-4e9c-4bfe-8323-07d3bda36951" style="width: 140px; height: 150px;" />
 </div>
-
-<div style="background-color: #ffffff;">
-  <img src="https://github.com/user-attachments/assets/95afd0d7-6610-4df8-9628-369afc1386e4" style="width: 100px; height: auto;" />
-</div>
-
 
 <br />
 
